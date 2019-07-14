@@ -1,1 +1,1 @@
-Tool hack fb premium by rezadkim
+Tool hack fb  by rezadkim
